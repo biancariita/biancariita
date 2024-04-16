@@ -1,4 +1,3 @@
-### Hi there 👋
  Bem-vindo(a) ao perfil da Bianca Pessoa 😁
 
  <div>
